@@ -1,0 +1,1 @@
+# Central-Pivot-Range-Model
